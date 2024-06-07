@@ -12,4 +12,4 @@ Meu nome é Hiago Santos
 
 @hiagod_santos
 
-![descrição do GIF](https://i.gifer.com/XOsX.gif)
+![descrição do GIF](https://platform.vox.com/wp-content/uploads/sites/2/chorus/uploads/chorus_asset/file/8689251/Slow_Clap_GIF_Image_for_Whatsapp_and_Facebook_21.gif?quality=90&strip=all&crop=0%2C0%2C100%2C100&w=640)
